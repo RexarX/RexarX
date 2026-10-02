@@ -1,5 +1,3 @@
-# 💫 About Me:
-
 You are a worm through time.
 
 The thunder song distorts you.
